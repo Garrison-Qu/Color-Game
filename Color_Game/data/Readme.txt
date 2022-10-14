@@ -6,15 +6,9 @@ NOTE:
 
 - This demo font is ONLY for PERSONAL USE. NO COMMERCIAL USE ALLOWED!
 
-- Contact us to purchase the commercial license: Ronindesign.id@gmail.com
+- Contact us to purchase the commercial license: teddyqv@outlook.com
 
 - For Corporate use, you must purchase a Corporate license
 
-- Any donation are very appreciated. Paypal account for donations:  https://www.paypal.me/ronindesignff
-
-
-Have question? comments or complaints, please send them to Ronindesign.id@gmail.com
-Check out our another font on Behance : https://www.behance.net/ronindesignid
-
 Best regard
-RoninDesign
+Garrison Qu
